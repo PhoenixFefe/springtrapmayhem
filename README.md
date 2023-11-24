@@ -1,2 +1,2 @@
 # springtrapmayhem
-This is a fnf mod i guess.
+Please use the release download an download the rar file for kittens sake.
