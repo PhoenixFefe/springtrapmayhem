@@ -1,2 +1,2 @@
 # springtrapmayhem
-Please use the release download an download the rar file for kittens sake.
+Please use the release download and download the rar file for kittens sake.
